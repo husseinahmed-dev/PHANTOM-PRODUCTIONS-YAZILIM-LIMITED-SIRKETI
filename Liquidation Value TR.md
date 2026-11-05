@@ -18,3 +18,4 @@ Ant. Kurumlar V.D. No: 729 132 0348
 Mersis No: 0729132034800001
 Tic.Sic.No: 135322
 
+![Resmî Bildirim – Kurucunun Şirket Varlıklarının Tasfiyesi](https://github.com/husseinahmed-dev/PhantomProductions/blob/main/image381.jpeg)
