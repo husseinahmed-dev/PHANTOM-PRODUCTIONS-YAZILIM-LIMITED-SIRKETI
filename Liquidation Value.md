@@ -19,4 +19,4 @@ Ant. Kurumlar V.D. No: 729 132 0348
 Mersis No: 0729132034800001
 Tic.Sic.No: 135322
 
-![https://github.com/husseinahmed-dev/PhantomProductions/blob/main/image382.jpeg]
+![Official Notice – Founder’s Resolution Regarding Company Liquidation](https://github.com/husseinahmed-dev/PhantomProductions/blob/main/image382.jpeg)
