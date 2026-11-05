@@ -1,7 +1,7 @@
 Sevgili Beyefendi / Hanımefendi,
 Şirket kapatıldıktan sonra tüm şirket ve kurucu verilerinin yasal olarak korunmasının gerekli olduğunu lütfen unutmayın.
 Saygılarımızla,
----
+_-_-_-_-_-_-_-_-_-_-_
 Dear Sir/Madam,
 Kindly be informed it is legally required to maintain all company & founder data post company closure.
 Regards,
