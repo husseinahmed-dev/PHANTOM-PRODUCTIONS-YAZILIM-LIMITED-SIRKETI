@@ -4,7 +4,7 @@ I hereby formally notify that the Government of the Republic of Türkiye owes me
 Payment Currency: United States Dollars (USD).
 Banknote Series: 2026 Series designation and all forward series.
 Serial Numbers: Random serial numbers.
-Kindly acknowledge receipt of this notice and provide a formal response concerning the matters above.
+Kindly acknowledge receipt of this notice and provide a formal response concerning the matters above. If no payment then %𝟎 𝐬𝐞𝐫𝐯𝐢𝐜𝐞 𝐝𝐞𝐥𝐢𝐯𝐞𝐫𝐲.
 Regards,
 Document Date: 9/11/2026 – 13:21 (UTC+3)
 Signature Date: 9/11/2026 – 13:21 (UTC+3)
