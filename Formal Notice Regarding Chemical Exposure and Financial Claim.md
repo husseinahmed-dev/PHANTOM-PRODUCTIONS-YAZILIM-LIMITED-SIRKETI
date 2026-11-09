@@ -17,6 +17,5 @@ Ant. Kurumlar V.D. No: 729 132 0348
 Mersis No: 0729132034800001
 Tic. Sic. No: 135322
 
-[Installments]
 ![Formal Notice Regarding Chemical Exposure and Financial Claim](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image408.jpeg)
 ![Formal Notice Regarding Chemical Exposure and Financial Claim](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image407.jpeg)
