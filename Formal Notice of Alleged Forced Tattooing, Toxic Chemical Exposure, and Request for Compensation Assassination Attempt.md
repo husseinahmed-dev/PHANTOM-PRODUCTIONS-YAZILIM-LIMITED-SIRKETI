@@ -30,3 +30,10 @@ Mersis No: 0729132034800001 Tic.Sic. No: 135322
 
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image409.jpeg)
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image410.jpeg)
+
+Masoud Barzani
+Masrour Barzani
+Nechirvan Idris Barzani
+Areen Masrour Barzani
+Idris Nechirvan Barzani
+Mazin Sirwan Barzani
