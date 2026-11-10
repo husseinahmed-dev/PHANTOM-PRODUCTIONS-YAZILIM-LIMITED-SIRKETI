@@ -30,6 +30,7 @@ Mersis No: 0729132034800001 Tic.Sic. No: 135322
 
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image409.jpeg)
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image410.jpeg)
+![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/standardcharteredbank%20(1)_page-0001.jpg)
 
 Masoud Barzani
 Masrour Barzani
