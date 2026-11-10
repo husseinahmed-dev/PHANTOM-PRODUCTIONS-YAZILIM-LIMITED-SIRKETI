@@ -32,7 +32,8 @@ Mersis No: 0729132034800001 Tic.Sic. No: 135322
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image410.jpeg)
 ![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/standardcharteredbank%20(1)_page-0001.jpg)
 Kafedry Psikhiatrii I Psikhiatricheskoy Ekspertizy Kazanskoy Gosudarstvennoy Meditsinskoy Akademii Кафедры психиатрии и психиатрической экспертизы Казанской государственной медицинской академии
-
+![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/IMG_20240119_151121_549.jpg)
+![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/IMG_20240120_110711_674.jpg)
 Masoud Barzani
 Masrour Barzani
 Nechirvan Idris Barzani
