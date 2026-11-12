@@ -26,3 +26,5 @@ Mersis No: 0729132034800001
 Tic. Sic. No: 135322
 
 ![Formal Notice Regarding Attempted Assassination Using Hepatitis C](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image412.jpeg)
+![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image413.jpeg)
+![](https://github.com/husseinahmed-dev/PHANTOM-PRODUCTIONS-YAZILIM-LIMITED-SIRKETI/blob/main/image414.jpeg)
